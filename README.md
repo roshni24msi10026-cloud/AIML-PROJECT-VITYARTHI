@@ -1,2 +1,0 @@
-# AIML-PROJECT-VITYARTHI
-VITyarthi Project
